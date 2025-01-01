@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on Linkedin
 - 📫 How to reach me Linkedin -> @sushensirohi
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: 120 unfinished projects, ExFounder of two startups, currently working on Radiant
+- ⚡ Fun fact: 12 unfinished projects, ExFounder of two startups, currently working on Radiant and Finlo
 
 
